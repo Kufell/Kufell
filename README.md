@@ -1,0 +1,3 @@
+- 👋 I’m @Kufell
+- Guy, who realized, that he did essentially nothing for past 4 years of his education
+- AND IT'S TIME TO CHANGE THAT!
